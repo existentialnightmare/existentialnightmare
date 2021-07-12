@@ -1,6 +1,5 @@
 the galaxy is very big.\
 you will die before seeing the edge.\
-23455
 \
 \
 🌎 
